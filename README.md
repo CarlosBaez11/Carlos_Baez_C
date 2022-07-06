@@ -1,1 +1,2 @@
-# Carlos_B-ez_C
+Laura Catalina González Velandia
+Carlos Eduardo Báez Coronado 1007379375
