@@ -1,2 +1,2 @@
-Laura Catalina González Velandia/n
+Laura Catalina González Velandia;
 Carlos Eduardo Báez Coronado 1007379375
